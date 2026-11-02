@@ -1,1 +1,1 @@
-# oyayibravinjuma.github.io
+oyayibravinjuma.com
